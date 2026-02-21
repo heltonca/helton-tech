@@ -33,6 +33,6 @@ I am currently available for **Freelance Projects** and **Contract Work** in the
 
 - 📱 **WhatsApp:** [+27 68 588 2587](https://wa.me/27685882587)
 - 📍 **Location:** Isipingo / Amanzimtoti / Durban Central
-- 💼 **LinkedIn:** [linkedin.com/in/heltonafonso](https://www.linkedin.com/in/heltonafonso) 
+- 💼 **LinkedIn:** [Helton Afonso](https://www.linkedin.com/in/helton-afonso-448597a1/?locale=pt_BR) 
 
 *"Turning complex problems into elegant digital solutions."*
